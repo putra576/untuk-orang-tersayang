@@ -1,1 +1,0 @@
-# untuk-orang-tersayang
